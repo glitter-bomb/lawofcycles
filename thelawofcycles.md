@@ -1,2 +1,6 @@
 # lawofcycles
-![7a52bb704122487d8224666b8df9bf3c](https://github.com/user-attachments/assets/af7ffab7-8c37-4ddb-bc5a-ccff8f0e8f9f)
+<p align="center">
+  <img width="460" height="300" src="![ae562b8f9309e5ea828065cf3ec97294](https://github.com/user-attachments/assets/750554e1-7822-4974-bf83-df192b66eebf)
+">
+</p>
+
