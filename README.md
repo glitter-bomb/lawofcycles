@@ -8,6 +8,7 @@
 </p>
 <p align="center"> hi im amelia! i love cute stuff, my boyfriend, my friends and the world and everything in it! </p>
 <p align="center"> im 17 (2/13), my favorite animal is cats, my favorite color is pink, i like any media with lots of girls ^_^ </p>
+<p align="center"> im usually people watching when im not with my friends, i think its nice :) </p>
 <p align="center"> ₊˚⊹♡🍰🍓♡⊹˚₊ </p>
 <p align="center"> i love my wonderful friend group of brit and co!!! below is a picture of us trust ( SINCE 4/17/23 ) </p>
 <p align="center">
