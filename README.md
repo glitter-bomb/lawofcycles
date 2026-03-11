@@ -14,7 +14,8 @@
   <img width="800" height="600" src="https://github.com/user-attachments/assets/e0206ee1-9a64-4196-883f-65854ab3a498">
 </p>
 <p align="center"> ♡ MY KINS!! ♡ </p>
-<p align="center"> in order; ♡ madoka kaname (#1 since 2021 ^o^) ♡ sayori ♡ lacey ♡ ragatha ♡ yuri otani ♡ noelle ♡ ena shinonome ♡ satori komeiji ♡ lain iwakura ♡ rena ryugu (I DO NOT KIN THE MURDER IN CERTAIN ARCS I AM NORMAL) ♡ reisen udongein inaba </p>
+<p align="center"> ♡ HEADS UP I AM NOT A FICTIONKIN/IRL I SIMPLY JUST RELATE TO THESE GUYS THANK U ♡ </p>
+<p align="center"> in order; ♡ madoka kaname (#1 since 2021 ^o^) ♡ sayori ♡ lacey ♡ my interpretation of ribbit ♡ ragatha ♡ yuri otani ♡ noelle ♡ ena shinonome ♡ satori komeiji ♡ lain iwakura ♡ rena ryugu (I DO NOT KIN THE MURDER IN CERTAIN ARCS I AM NORMAL) ♡ reisen udongein inaba </p>
 <p align="center"> ₊˚⊹♡🍰🍓♡⊹˚₊ </p>
 
  <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/e5034c0b-966b-4a4d-b292-efebf8786bc7"> </p>
